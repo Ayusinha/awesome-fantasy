@@ -754,6 +754,12 @@ Beautiful and stunning film with strong female characters. Even if you're not fa
 
 > On a journey to find the cure for a Tatarigami's curse, Ashitaka finds himself in the middle of a war between the forest gods and Tatara, a mining colony. In this quest he also meets San, the Mononoke Hime.
 
+#### [The Dark Knight](https://www.imdb.com/title/tt0468569/) [9.0] :star2:
+
+An amazing movie which is surrounded by such an amazing characters and soundtracks(By Hans Zimmer), I'm sure you will enjoy this movie. - [@Ayusinha](https://github.com/Ayusinha)
+
+> When the menace known as the Joker wreaks havoc and chaos on the people of Gotham, Batman must accept one of the greatest psychological and physical tests of his ability to fight injustice.
+
 ## TV Series
 
 #### [Avatar: The Last Airbender](http://www.imdb.com/title/tt0417299/) [9.2]
